@@ -1,8 +1,8 @@
 # Qu'est ce que l'Islam ? 
 
-En deux mot: Croire qu'il existe un Créateur tout puissant et se soumettre à lui 
+En deux mots: Croire qu'il existe un Créateur tout puissant et se soumettre à lui 
 
-L'Islam n'est pas une simple religion c'est tout un système de vie social, politique et spirituelle. Selon l'Islam il n'y a qu'un Seul Dieu Tout-Puissant qui est le seul méritant d'être adoré. L'Islam reconnais Ibrahim (Abraham), Issa, (Jésus), Mussa (Moïse) et enfin Mohammed comme étant le dernier des prophètes ayant reçu la Révélation Divine. L'Islam appel donc à croire en un Seul Dieu et Unique Tout-Puissant et à suivre les règles énoncé dans la Révélation aux prophètes, la Torah puis l'Evangiles sont selon l'Islam des Livres Sacré déscendu par Allah qui après on été modifié alors que la dernière Révélation qui est le Coran serait elle, inaltéré. 
+L'Islam n'est pas une simple religion, c'est tout un système de vie social, politique et spirituelle. Selon l'Islam il n'y a qu'un Seul Dieu Tout-Puissant qui est le seul méritant d'être adoré. L'Islam reconnais Ibrahim (Abraham), Issa, (Jésus), Mussa (Moïse) et enfin Mohammed comme étant le dernier des prophètes ayant reçu la Révélation Divine. L'Islam appel donc à croire en un Seul Dieu et Unique Tout-Puissant et à suivre les règles énoncé dans la Révélation aux prophètes, la Torah puis l'Evangiles sont selon l'Islam des Livres Sacré déscendu par Allah qui après on été modifié alors que la dernière Révélation qui est le Coran serait elle, inaltéré. 
 
 # Qu'elles sont les règles à suivre ? 
 
