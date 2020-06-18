@@ -12,9 +12,9 @@ Premièrement les "adaabs", c'est à dire le bon comportemments: Honneur, Paix, 
 
 Tu à tout ce qu'il te faut ? Tu t'amuse, tu a du plaisir ? Mais ton âme est elle apaisé ? A tu cette sérinité ? Ce sentiment de Bonheur extreme ? Si tu n'est pas musulman je ne pense pas que oui, je te donne l'occasion de ressentir un peu d'apaisement à l'écoute de la Parole de Dieu : 
 
-https://www.youtube.com/watch?v=MS7Hinio2YE
+[Récitation du Coran par Amir Chamim](https://www.youtube.com/watch?v=MS7Hinio2YE)
 
-https://www.youtube.com/watch?v=nKS1wreryGs
+[Récitation du Coran par Islam Sobhi](https://www.youtube.com/watch?v=nKS1wreryGs)
 
 Ecoute un peu de cela en te posant et en méditant sur ce que t'a fais de ta vie et de ton lien avec le Tout-Puissant, tu ressentira certes avec l'Islam l'appaisement et la douceur de la fois !
 
