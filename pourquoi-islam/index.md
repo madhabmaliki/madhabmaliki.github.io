@@ -8,7 +8,7 @@ L'Islam n'est pas une simple religion c'est tout un système de vie social, poli
 
 Premièrement les "adaabs", c'est à dire le bon comportemments: Honneur, Paix, Gentillesse, Miséricorde, Justice, Pardon, Respect, Douceur, Force, Courage et s'éloigner du Mensonge, Désonnheur, Méchanceté ect .. Et cela est commun aux trois grandes religion mais sont particulièrement accentué dans l'Islam. Ensuite après ça il y a des règles : 5 prière par jour la raison en est d'abord car Allah nous l'a obligé puis pour maintenir un lien avec le Créateur, La Zakat (un don annuel aux pauvres obligatoire qui est un pourcentage de l'argent inutilisé durant l'anné), Le jeune du moi du Ramadan (D'abord car Allah nous l'a commandé ensuite il y a divers avantages: Vivre un mois avec la faim pour ressentir la soufrance des pauvres, Apprendre à Patienter et a se contrôler, ect ..), et enfin un pélérinage à la Mecque une fois dans sa vie. 
 
-# Est tu heureux ? 
+# Es-tu heureux ? 
 
 Tu à tout ce qu'il te faut ? Tu t'amuse, tu a du plaisir ? Mais ton âme est elle apaisé ? A tu cette sérinité ? Ce sentiment de Bonheur extreme ? Si tu n'est pas musulman je ne pense pas que oui, je te donne l'occasion de ressentir un peu d'apaisement à l'écoute de la Parole de Dieu : 
 
